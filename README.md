@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @iamzoyag
+- 👀 I’m interested in chocolate 🍫, reading 📖, writing ✎ and eating 😋
+- 🌱 I’m currently learning Computer Science. More specifically, Artificial Intelligence
+- 💞️ I’m looking to collaborate on many interesting projects. I'm an amateur so for now, I'm looking for more learning experience but I'm always open for some fun passion projects!
+- 📫 How to reach: Mail me at zoyaghoshal@gmail.com
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: I absolutely love reading manhwa, manga and webnovels, so, if you're interested too, feel free to reach out and we can talk about some!
